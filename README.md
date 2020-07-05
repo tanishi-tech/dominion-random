@@ -1,0 +1,1 @@
+# https://tanishi-tech.github.io/dominion-random/
